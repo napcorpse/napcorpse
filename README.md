@@ -1,18 +1,14 @@
-![MasterHead]( https://64.media.tumblr.com/c59a32a59766a2c195e3a38325f94ee3/9fbde1af423c171e-ba/s2048x3072/1503e2013c9ac3258f234033786ed899f6d10d93.pnj)
-
-
-<div align="center">
-<img src="https://media.discordapp.net/attachments/860613586934431795/1407225173211484211/45.png?ex=68a55412&is=68a40292&hm=ab3b9834fdaa64d8a577c997f8738ed9180d62a483be747b9f8c1d095b2e045b&=&format=webp&quality=lossless&width=780&height=780" width="200" />
-<div align="center">
-
-![Profile views](https://visitor-badge.laobi.icu/badge?page_id=t0biiy.t0biiy)
-
-# 𝐈𝐧 𝐠𝐚𝐦𝐞 𝐬𝐭𝐮𝐟𝐟,,,
+![MasterHead]( https://64.media.tumblr.com/0dafb7712e70d9a846f823d0190d531f/00c46139bda447b3-fd/s2048x3072/cf3c8eebaabec26f4e2e43e0952be37a78e2231b.png)
 
 <div align="center"> 
+  
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Bitcount+Prop+Single&size=42&pause=1000&color=5D8736&center=true&repeat=false&width=435&lines=NAPCORP)](https://git.io/typing-svg)
 
-![Alt text](https://64.media.tumblr.com/8fbebba4642819152a7e832b4482c228/8da9d4d2bb66f0f1-e0/s250x400/d79dda7e42799ce3ca3a8890454fa47224942fbe.gif)
-![Alt text](https://64.media.tumblr.com/a71986d145b118ed49d3089d32faea8b/8da9d4d2bb66f0f1-86/s250x400/bb52224669d5eaf9e5fd9c3c95b6890c343b070a.gif)
-![Alt text](https://64.media.tumblr.com/b2a3f192472469acf35280791ce21300/8da9d4d2bb66f0f1-b3/s250x400/dd125922b66066d1f0f3db87874da223288a5a1e.gif)<br>
+![Alt text](https://64.media.tumblr.com/6104f53b7a4fb3669b6186d0db686810/0e5301293eb46033-67/s400x600/ed2fcd4d9f7315f84dbd83f6c5e04167fcc6c6d6.png)
+![Alt text](https://64.media.tumblr.com/2eabd0f7da74a7a6f64b7042dec1039f/0e5301293eb46033-50/s400x600/249abdefea26fc7ba29462001bb799f681c95ce3.png)
+![Alt text](https://64.media.tumblr.com/9e50f461d567f2209de684c3cd57924d/0e5301293eb46033-fd/s400x600/5d56ea4f0735c2d826e33d25491b4810c6f4ccc4.png)<br>
 
-![image](https://github.com/user-attachments/assets/dd705835-7f0e-47e8-b32e-a47fa45f14e5)
+<di align="left">
+  
+![Alt text](https://64.media.tumblr.com/c1c1de99d5d4a8fd0d71d3c4aaf5c68e/8f22f095c221bf13-c2/s400x600/fa60a0a2131528928e7a72389fe17a3583c93ab0.png)<br>
+ha
